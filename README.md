@@ -1,4 +1,4 @@
-# Exercice-Cadavre-Exquis-Firstname
+# Exercice-Cadavre-Exquis-Steeve
 
 # Une exploration quitourne mal
 
