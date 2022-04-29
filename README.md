@@ -13,3 +13,5 @@ Ils décidèrent finalement de se rendre dans une grande forêt située à quelq
 Le groupe s'y approcha, ils avaient tout ce petit frison de l'inconnu ou peut-être de la peur seule eux le savent.
 
 La porte grinça sinistrement lorsqu'ils la poussèrent. L'atmosphère leur sembla directement pesante tandis qu'ils foulaient leurs premiers pas dans le grand hall d'entrée du sanatorium. Et tandis que deux chemins s'offraient à eux, ils décidèrent de se séparer en deux groupes. Le premier groupe parti vers un grand escaliers sur leur gauche. Le bois craquait à chaque marche. Une fois en haut, un bruit émergea de la pénombre. Comme une porte qui s'ouvrait un peu plus loin accompagné de murmures. Devaient-ils accepter cette invitation ? La curiosité était trop grande et ils s'avancèrent vers cette porte.
+
+Le deuxième groupe pris le chemin menant au sous sol du batiment. En bas, des sortes de cellules de prisons avec à l'interieur, des chaînes rouillées et des OS sur le sol. Soudain, un hurlement retenti.
