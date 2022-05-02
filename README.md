@@ -1,6 +1,6 @@
 # Exercice-Cadavre-Exquis-Steeve
 
-# Une exploration quitourne mal
+# Une exploration qui tourne mal
 
 ![Lien](https://m.media-amazon.com/images/I/31ZMME7yBQL._AC_.jpg)
 
